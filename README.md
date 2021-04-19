@@ -1,4 +1,4 @@
-# AB USERBOT🔥🔥
+# Ethio Userbot
 
 <p align="center">
 <img src="https://telegra.ph/file/3783bd9bdde374797c704.jpg" alt="AB USERBOT">
